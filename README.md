@@ -6,9 +6,9 @@
 
 **✈︎ LINKS**
 
-[straw.page](https://worstleon.straw.page/)
+* [straw.page](https://worstleon.straw.page/)
 
-[pronouns.cc](https://pronouns.cc/@riveramagic)
+* [pronouns.cc](https://pronouns.cc/@riveramagic)
 
 
 <br />
