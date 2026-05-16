@@ -27,7 +27,7 @@
 
 * [straw.page](https://crypticviola.straw.page/)
 
-* [pronouns.cc](https://pronouns.cc/@crypticviola)
+* [pronouns.cc](https://en.pronouns.page/@crypticviola)
 
 * [icon creds](https://x.com/suoyre/media)
 
