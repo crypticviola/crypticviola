@@ -29,6 +29,7 @@
 
 * [pronouns.cc](https://pronouns.cc/@crypticviola)
 
+* [icon creds](https://x.com/suoyre/media)
 
 <br />
 
