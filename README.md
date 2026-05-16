@@ -2,6 +2,21 @@
     <img src="https://github.com/user-attachments/assets/e14d5db9-9924-4603-85fc-0596055aa7e3" width="1000">
 
 <br />
+<br />
+
+
+<p align="right"><sup>absence makes the heart grow fonder,
+    <br />
+    fondness makes the absence longer.
+    <br />
+    length loses my interest,
+    <br />
+    im a realist, im insatiable
+    <br />
+    stopped counting days until i fly,
+    <br />
+    with hours before your reply<sup>
+
 
 
 </p>
@@ -40,7 +55,7 @@
 
 <br />
 
-**꩜ INTERESTS**
+**♬ INTERESTS**
 
 <br />
 
@@ -54,11 +69,29 @@
 * (other) drawing , watching movies , writing , music , 
 
 
+
+</p>
+  
 <br />
 
+<p align="right"><sup>i cannot emphasise enough
+    <br />that my body
+    <br />
+    is a badly designed,
+    <br />poorly put together vessel
+    <br />
+    harbouring these diminishing,
+    <br />so called 'vital' organs.
+    <br />
+    hope my heart goes first<sup>
+
+<br />
+<br />
+
+
 <p align="center">
-    <img src="https://github.com/user-attachments/assets/5254c6ca-286c-45c9-8c81-809daebcaa25" width="1000"> 
-    <sup>creds for all https://x.com/suoyre/media !<sup>
+    <img src="https://github.com/user-attachments/assets/e14d5db9-9924-4603-85fc-0596055aa7e3" width="1000">
+
 
 <br />
 <br />
